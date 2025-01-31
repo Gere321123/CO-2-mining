@@ -6,15 +6,15 @@ What if they get reworded affter they destroyed a cupple tones of $CO_2$?
 And they can make money destroying $CO_2$.
 It's sound like a ferry tall but I'm gonna show step by step how thay can make money.
 
-1. I'm going to meet at least 10 CO2 destoryer companes for 10 diferent contrys.
-2. I'm gonna create 100 million tokens there will never be more than this, and the only way to get this tokens is thet you need to destroy a cuple tones of CO^2 and the atther companes can vote that you realy destroy that much and if everybody vote that you are realy destroy that much you get the tokens and you can sell affter this tokens for investors.
+1. I'm going to meet at least 10 $CO_2$ destoryer companes for 10 diferent contrys.
+2. I'm gonna create 100 million tokens there will never be more than this, and the only way to get this tokens is thet you need to destroy a cuple tones of $CO_2$ and the atther companes can vote that you realy destroy that much and if everybody vote that you are realy destroy that much you get the tokens and you can sell affter this tokens for investors.
 2.a) What if you cheeted?
     In that case they whont let you do this bacause they gonna find out this baceus they work hart to get this tokens and affter they have a proof you'r out.
-2.b) The tokens that the destroyer resive is gana be less affter ther are more CO2 destoryer because I whant then motivated to create more CO2 destroyer.
+2.b) The tokens that the destroyer resive is gana be less affter ther are more $CO_2$ destoryer because I whant then motivated to create more $CO_2$ destroyer.
 
 Whay is this a good investment?
 The idea behibnd bitcoin is that money shoud be hard to creat and this case it's realy hard you can't mind this tokens in your bastmand it's expansive so the tokens are gonna be more expance because this.
 
 Numbers:
 
-In order to stop climatchange I biliv we need to destroy at least 500 gigaton of CO^2 so whne all the tokens are mined the resoult soud be the we destroy that many CO2 or more. 
+In order to stop climatchange I biliv we need to destroy at least 500 gigaton of $CO_2$ so whne all the tokens are mined the resoult soud be the we destroy that many $CO_2$ or more. 
