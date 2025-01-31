@@ -21,8 +21,8 @@ Once verified, the company receives tokens, which they can sell to investors or 
 
 ### Preventing Fraud
 
-What if someone cheats?
-If a company tries to falsify data or cheat the system, the other companies in the network will detect it. Since they all have a vested interest in maintaining the integrity of the system, they will work hard to ensure no one can game it.
+What if someone cheats? 
+If a company tries to falsify data or cheat the system, the other companies in the network will notice. Since they all have a vested interest in maintaining the integrity of the system, they will work hard to make sure that no one can cheat. Also, 1 vote is enough to prevent someone from getting a token. So this system would only be corrupt if everyone is, and I think that is unlikely to happen.
 
 If fraud is proven, the offending company will be permanently removed from the network.
 
