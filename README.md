@@ -1,6 +1,6 @@
 # CO₂ Mining: A Proposal to Incentivize Carbon Dioxide Destruction
 
-Climate change is a complex issue, and one of the primary drivers is the increasing levels of carbon dioxide (CO₂) in the atmosphere. To combat this, we need to not only reduce emissions but also actively remove CO₂ from the atmosphere. Companies like Mammoth in Iceland are already building CO₂ destruction facilities, but the challenge is that these projects are expensive (costing $10-20 million) and currently do not generate revenue. To address this, we need a system that motivates more people and companies to build CO₂ destroyers.
+Climate change is a complex issue, and one of the primary drivers is the increasing levels of carbon dioxide (CO₂) in the atmosphere. To combat this, we need to not only reduce emissions but also actively remove CO₂ from the atmosphere. Companies like [Mammoth](https://climeworks.com/plant-mammoth) in Iceland are already building CO₂ destruction facilities, but the challenge is that these projects are expensive (costing $10-20 million) and currently do not generate revenue. To address this, we need a system that motivates more people and companies to build CO₂ destroyers.
 
 ### What if we could reward them for destroying CO₂?
 What if they could make money by removing CO₂ from the atmosphere?
